@@ -54,7 +54,7 @@ Here are some ideas to get you started:
 
 ### 🤙 Let's Connect
 
-- 📬 [Instagram](https://instagram.com/kaashishh6) (if you wanna plug it in)
+- 📬 [Instagram](https://instagram.com/kaashishh6) 
 - 🌐 [Portfolio Coming Soon...](#)  
 
 <p align="center">
